@@ -4,7 +4,7 @@ Soy un estudiante de la carrera de Ingeniería civil en la Universidad Católica
 
 Me apasiona profundamente aplicar conocimientos teóricos a desafíos del mundo real y generar un impacto positivo en el campo. Con un profundo interés en las tecnologías emergentes y sus aplicaciones en la ingeniería civil, al tanto de las tendencias de la industria y a explorar nuevas fronteras en construcción, sostenibilidad y desarrollo de infraestructura. Busco integrar contenidos en programacion y diseño de software aplicables a ingenieria.
 
-cuento con conocimiento avanzado de AutoCAD, photoshop, civil 3d y excel. busco ser un solucionador de problemas proactivo y orientado al futuro, listo para hacer una contribución significativa a la profesión de la ingeniería civil. ¡colaboremos y construyamos juntos un futuro más brillante!
+Cuento con conocimiento avanzado de AutoCAD, photoshop, civil 3d y excel. busco ser un solucionador de problemas proactivo y orientado al futuro, listo para hacer una contribución significativa a la profesión de la ingeniería civil. ¡colaboremos y construyamos juntos un futuro más brillante!
 
 
 
